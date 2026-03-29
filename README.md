@@ -1,7 +1,7 @@
 <div align="center">
   
 ![banner](https://64.media.tumblr.com/f663370efc1daf96719adbef7ec67616/08c8e7fcea5f0344-a4/s2048x3072/80db09ced4a8c5f468c630e07ee27869508a19db.pnj)
-![banner](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExcGx4eGs2cW1uajZjdHd5cmh4NWV3b2NmZmpzNGZheXJqbjVxd29kNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/NcHJdlWFxdohu40bjX/giphy.gif)
+![banner](https://64.media.tumblr.com/e8482fff696d6a652a3e04de938b76ab/4633d706d2dc5afa-3a/s1280x1920/0033f7b526e83a6fedb04a78f3b65458a308b1a6.pnj)
 ![banner](https://64.media.tumblr.com/96f81a29f0aafdda452fa07e8dca7267/08c8e7fcea5f0344-f8/s2048x3072/c25d3cc7bf83dde6d73aca0ae2a5e42066e13523.pnj)
 
 
