@@ -2,7 +2,12 @@
   
 need to make stuff. I promise it'll look pretty
 
+![banner](https://64.media.tumblr.com/145f804ea37c605babb54d41809120dc/277029bb61625c4c-57/s500x750/2f1e9016e8e4a126e915dfdc3a01ebdd4ca785c2.webp)
+
  ![banner](https://64.media.tumblr.com/68208c904e2e2df76295ac01898c513a/a706b4ffac623248-1b/s400x600/2b702023ab5bdf5834aca947cdbd5384f599d053.gifv) <div align="center"> ⬇ i wubwub these 2 ⬆ </div> ![banner](https://64.media.tumblr.com/16b9d81bd70d3c01b3ff174381dedf01/bf5a48dc6734976c-b8/s400x600/e64366ef7a2c6ce71767070bfc535bd066bd329d.gifv)
+
+![banner](https://64.media.tumblr.com/ff6d502f3ec43c2447c7628f2f56d266/64d229e8c99a32e7-b9/s1280x1920/f24a50fb49e8dfdd1df54287e98958f4c273e4d3.pnj)
+ 
 <div align="center"> I'm fine with doubles. love u mwah ! </div>
 
 
